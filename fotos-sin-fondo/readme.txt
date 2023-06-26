@@ -1,1 +1,1 @@
-Aquí apareceran las fotos sin fondo en fomarto png
+Aquí apareceran las fotos sin fondo
